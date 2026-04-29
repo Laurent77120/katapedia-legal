@@ -18,4 +18,4 @@ If this changes in future versions, this privacy policy will be updated accordin
 
 
 ## Contact
-laurent.gaillard.je@hotmail.fr
+katapedia.support@protonmail.com
